@@ -1,0 +1,2 @@
+# premium-leather-book-001-leather-journal-cover-construc
+Tired of losing track of the exact measurements, stitching patterns, and leather thickness that made your last journal cover perfect? The Leather Journal Cover Construction Log is the Notion template that turns your trial-and-error into a repeatable system.  This template solves the chaos of scattered notes and failed replicas by giving you a singl
